@@ -1,2 +1,2 @@
 ill add something here later —
-[ata](https://thirdlotusprince.atabook.org)
+[sign my ata while your at it yo](https://thirdlotusprince.atabook.org)
