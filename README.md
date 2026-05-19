@@ -1,2 +1,2 @@
-image here wait
-ㅤㅤㅤㅤㅤ[ata](https://thirdlotusprince.atabook.org)
+ill add something here
+[ata](https://thirdlotusprince.atabook.org)
