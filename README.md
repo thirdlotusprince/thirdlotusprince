@@ -1,7 +1,7 @@
 wip
 <div align="center">
   
-$\color{#cdcb66}{yeah!}$ $\color{#FF0000}{don't}$ $\color{#FF0000}{worry}$ $\color{#FF0000}{about}$ $\color{#FF0000}{it}$ $\color{#FF0000}{wukong,}$ $\color{#FF0000}{it's~fine!}$
+$\color{#ab8847}{yeah!}$ $\color{#c1a462}{don't}$ $\color{#FF0000}{worry}$ $\color{#FF0000}{about}$ $\color{#FF0000}{it}$ $\color{#FF0000}{wukong,}$ $\color{#FF0000}{it's~fine!}$
 <table>
   <table width="100%">
   <tr>
