@@ -1,7 +1,7 @@
 rmaking too
 <div align="center">
   
-<sub> $\color{#ab8847}{yeah!}$ $\color{#c1a462}{don't}$ $\color{#d5ad7f}{worry}$ $\color{#e5a99a}{about}$ $\color{#f7a19a}{it}$ $\color{#f49cc4}{wukong,}$ $\color{#ff8cba}{it's~fine!}$ </sub>
+<sub> $\color{#ff8cba}{txt}$ </sub>
   <sub> <a href="https://lotusroots.atabook.org/">atabook</a> </sub>
 </td>
   </tr>
