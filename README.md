@@ -2,8 +2,6 @@ rmaking too
 <div align="center">
   
 <sub> $\color{#ab8847}{yeah!}$ $\color{#c1a462}{don't}$ $\color{#d5ad7f}{worry}$ $\color{#e5a99a}{about}$ $\color{#f7a19a}{it}$ $\color{#f49cc4}{wukong,}$ $\color{#ff8cba}{it's~fine!}$ </sub>
-<img src="https://file.garden/aZpUGFsRbiDb3n3c/lego-monkie-kid-nezha-ezgif.com-effects.gif" alt="ok" style="width:50;">
-<br>
   <sub> <a href="https://lotusroots.atabook.org/">atabook</a> </sub>
 </td>
   </tr>
