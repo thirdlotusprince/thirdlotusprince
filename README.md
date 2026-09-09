@@ -12,7 +12,3 @@ wip
 </td>
   </tr>
   </table>
-<details> <summary> ${text}$</a> </summary><br>
-<sub> text </sub>
-<br>
-<br>
