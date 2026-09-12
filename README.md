@@ -11,5 +11,5 @@
 <br>
 <br>
 <a href="https://lotusroots.atabook.org/">
-<img src="https://images-ext-1.discordapp.net/external/Fg5IiI1jv2_ref5H5J4HLw8krhXUgxkh2gs8HBMo8bs/https/file.garden/aZpUGFsRbiDb3n3c/Untitled187_20260910074359.png?format=webp&quality=lossless" width="200" height="200">
+<img src="https://images-ext-1.discordapp.net/external/Fg5IiI1jv2_ref5H5J4HLw8krhXUgxkh2gs8HBMo8bs/https/file.garden/aZpUGFsRbiDb3n3c/Untitled187_20260910074359.png?format=webp&quality=lossless" width="199" height="199">
 </a>
