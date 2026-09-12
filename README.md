@@ -5,7 +5,7 @@
 <br>
 <br>
 <br>
-𝓸rㅤ𝓷ezhaㅤㅤㅤ˚ִㅤㅤ♡ㅤ𓈒ㅤ ֺㅤㅤc+h enc
+𝓸rㅤ𝓷ezhaㅤㅤㅤㅤ♡ㅤ𓈒ㅤ ֺㅤ
 <br>
 <br>
 <br>
