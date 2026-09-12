@@ -6,7 +6,7 @@
  ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <br>
 <br>
-or nezhaㅤㅤㅤ˚ִִ ̮݂݂۫͡ ♡⃘𓈒🪽𓈒ㅤ ֺㅤㅤc+h enc
+or nezhaㅤㅤㅤ˚ִִ ̮͡ ♡⃘𓈒ㅤ ֺㅤㅤc+h enc
 <br>
 <br>
 <br>
