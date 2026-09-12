@@ -9,8 +9,6 @@
 or nezhaㅤㅤㅤ˚ִִ ̮݂݂۫͡ ♡⃘𓈒🪽𓈒ㅤ ֺㅤㅤc+h enc
 <br>
 <br>
-ꆬ  ᣟ ۪ㅤㅤ 𓏻.͜͝𓈒ֵ۫ॱֺּׅ ̣̣̣֦ॱᥥ  ꒢ㅤㅤㅤ⑅
-<br>
 <br>
 <br>
 <a href="https://lotusroots.atabook.org/">
