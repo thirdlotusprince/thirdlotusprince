@@ -5,7 +5,7 @@ redoing the bio thingy ok
 <br>
 <br>
 <br>
-𝓸rㅤ𝓷ezhaㅤㅤ♡ㅤ  ˙ㅤㅤ ⑅𓏼     ㅤ5w6ㅤㅤ  ׅ    ۫   ㅤ˖ 
+𝓸rㅤ<img src="https://file.garden/aZpUGFsRbiDb3n3c/Untitled192_20260913194507.png" width="100" height="43">ㅤㅤ♡ㅤ  ˙ㅤㅤ ⑅𓏼     ㅤ5w6ㅤㅤ  ׅ    ۫   ㅤ˖ 
 <br>
 <br>
 <br>
