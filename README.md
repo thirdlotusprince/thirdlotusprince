@@ -1,7 +1,7 @@
 redoing the bio thingy ok
 <div align="center">
 
-<img src="https://file.garden/aZpUGFsRbiDb3n3c/ezgif.com-gif-maker.gif" width="432" height="300">
+<img src="https://file.garden/aZpUGFsRbiDb3n3c/ezgif.com-gif-maker.gif" width="432" height="299">
 <br>
 <br>
 <br>
