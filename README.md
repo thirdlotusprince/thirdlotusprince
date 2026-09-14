@@ -5,7 +5,7 @@ redoing the bio thingy ok
 <br>
 <br>
 <br>
-𝓸rㅤ<img src="https://file.garden/aZpUGFsRbiDb3n3c/ezgif.com-gif-maker%20(1).gif" width="100" height="43">ㅤㅤ♡ㅤ  ˙ㅤㅤ ⑅𓏼     ㅤ5w6ㅤㅤ  ׅ    ۫   ㅤ˖ ㅤi  ♡  my partners
+𝓸rㅤ<img src="https://file.garden/aZpUGFsRbiDb3n3c/ezgif.com-gif-maker%20(1).gif" width="100" height="43">ㅤㅤ♡ㅤ  ˙ㅤㅤ ⑅𓏼     ㅤ     ㅤ˖ ㅤi  ♡  my partners
 <br>
 <br>
 <br>
