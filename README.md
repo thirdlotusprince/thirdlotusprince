@@ -2,7 +2,7 @@ slightly revamping this
 <div align="center">
 <br>
 <br>
-<img src="https://file.garden/aZpUGFsRbiDb3n3c/ezgif.com-gif-maker.gif" width="388" height="273">
+
 <br>
 <br>
 <br>
