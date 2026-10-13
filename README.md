@@ -2,12 +2,11 @@ slightly revamping this
 <div align="center">
 <br>
 <br>
-
 <br>
 <br>
 <br>
-  <img src="https://file.garden/aZpUGFsRbiDb3n3c/ezgif.com-gif-maker%20(1).gif" width="100" height="43">⠀ᵒʳ aizen ⠀·ׅ۫ ♡⠀⠀ ⠀  ⠀𝒉e⠀♡⠀𝕒𝚗y ⠀ ⠀ׅ⠀ ۫ ⠀<img src="https://file.garden/aZpUGFsRbiDb3n3c/Untitled207_20260928165550.png" width="58" height="49"> ⠀ 𝐭a𝐤en²
+  <img src="https://file.garden/aZpUGFsRbiDb3n3c/ezgif.com-gif-maker%20(1).gif" width="100" height="43">⠀⠀⠀ ⠀·ׅ۫ ♡⠀⠀ ⠀  ⠀𝒉e⠀♡⠀𝕒𝚗y ⠀ ⠀ׅ⠀ ۫ ⠀<img src="https://file.garden/aZpUGFsRbiDb3n3c/Untitled207_20260928165550.png" width="58" height="49"> ⠀ 𝐭a𝐤en²
 <br>
 <br>
 <br>
-<br>
+</br>
