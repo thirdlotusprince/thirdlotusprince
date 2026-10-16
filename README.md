@@ -1,4 +1,3 @@
-slightly revamping this
 <div align="center">
 <br>
 <br>
