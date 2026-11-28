@@ -5,7 +5,7 @@
 <img src="https://file.garden/aZpUGFsRbiDb3n3c/Untitled262_20261127185813.png" width="450" height="100%" align="right">
 $\color{#EA77B2}{\text{我是哪吒，}}$ $\color{#BE496C}{\text{扛塔天王李靖的第三子。}}$ 🪷
 <br>
-$\color{#c01428}{\text{哪吒 ㅤ𝓝ezha}}$ㅤㅤᵒʳㅤㅤ𝓛och 
+$\color{#c01428}{\text{(哪吒) ㅤ𝓝ezha}}$ㅤㅤᵒʳㅤㅤ𝓛och 
 <br>
 
 <img src="https://file.garden/aZpUGFsRbiDb3n3c/Untitled262_20261128073158.png" width="230" height="120" align="left"> txt txt
